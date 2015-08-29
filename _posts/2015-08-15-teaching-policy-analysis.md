@@ -7,7 +7,7 @@ title: Teaching Policy Analysis
 
 
 
-The syllabus for this course can be downloaded from http://pmap.gsu.edu/files/2015/06/Syllabus_4061_Summer2015.pdf 
+The syllabus for this course can be downloaded from (http://pmap.gsu.edu/files/2015/06/Syllabus_4061_Summer2015.pdf). 
 
 
 
